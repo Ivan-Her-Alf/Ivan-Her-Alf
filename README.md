@@ -4,7 +4,7 @@
 
 ## 🚀
 
-![LinkedIn Banner](img_top.png)
+![LinkedIn Banner](https://github.com/Ivan-Her-Alf/Ivan-Her-Alf/blob/main/img_top)
 
 ---
 
