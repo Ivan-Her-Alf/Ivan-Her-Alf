@@ -4,7 +4,7 @@
 
 ## 🚀
 
-![LinkedIn Banner](C:\Users\ACER\Pictures\'ChatGPT Image 11 feb 2026, 08_02_23 p.m.'.png)
+![LinkedIn Banner](ChatGPT Image 11 feb 2026, 08_02_23 p.m..png)
 
 ---
 
